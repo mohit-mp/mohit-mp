@@ -4,7 +4,5 @@
 I'm Mohit Parmar
 
 - ⚡ Team Lightning
-
-  
-- 📫 How to reach me: mparmar@greenactionstudio.com
+- 📫 Reach out to me at: mparmar@greenactionstudio.com
 - 😄 Pronouns: He/Him
